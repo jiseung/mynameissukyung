@@ -1,0 +1,2 @@
+# mynameissukyung
+mynameissukyung.com
